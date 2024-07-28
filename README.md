@@ -12,7 +12,7 @@
 
 - 💬 Ask me about **HTML CSS Python SQL**
 
-- 📫 How to reach me **meher213kapoor@gmail.com**
+- 📫 How to reach me **anushkasadegaonkar5@gmail.com**
 
 - ⚡ Fun fact **Cricket aficionado.**
 
